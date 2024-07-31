@@ -1,3 +1,3 @@
 Link Do Projeto:
 
-https://felpszadaa.github.io/Pepsi/
+https://motaax.github.io/Pepsi/
